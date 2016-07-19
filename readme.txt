@@ -1,6 +1,4 @@
 
-
-=======
 ligne n 1bvdxswdffdf
 ligne n 2
 ligne n 3
